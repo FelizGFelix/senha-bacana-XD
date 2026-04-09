@@ -1,1 +1,0 @@
-# senha-bacana-XD
